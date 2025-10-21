@@ -34,7 +34,8 @@ I’m passionate about transforming raw data into actionable insights that help 
 ---
 
 ### 📫 Connect with Me
-[LinkedIn](https://www.linkedin.com/in/kayamspoorthi/)  • [Email](kayam.spoorthi920@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/kayamspoorthi/) 
+• **Email** - kayam.spoorthi920@gmail.com
 
 
 
